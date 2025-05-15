@@ -1,1 +1,1 @@
-Hello, i make games, webpages and libs (sometimes)!
+A idiot that likes programming! :D
